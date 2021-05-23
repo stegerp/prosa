@@ -20,3 +20,15 @@ ob diese Erinnerungen wirklich meine sind.
 Aber was macht das schon?
 Werde ich sie mitnehmen können, 
 wenn ich gehe? 
+
+[Gedanken am 08.05.2021](Tagebuch.md#08052021)
+
+### 18.05.2021
+Die Erinnerung an das rauchverhangene Neonlicht einer Kneipe,
+das Einlullen meiner Blicke im feuchten Atem kraftloser Illusionen und der Eindruck,
+das Davor und Danach des Lebens in diesem Moment festhalten zu können.
+Für immer. In nächster Nähe zum emotionalen Abgrund,
+in größtmöglicher Entfernung zur Erreichbarkeit meiner Träume,
+inmitten der lebendigsten Täuschung meines Bewusstseins.
+
+[Kneipenbesuch am 18.05.2021](Tagebuch.md#18052021)

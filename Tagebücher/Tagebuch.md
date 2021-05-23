@@ -137,3 +137,5 @@ ihre Strahlkraft in meiner ständigen Nacht,
 solange ich nur immer weiter von ihr schreibe,
 meine Worte immer wieder lese.<br>
 Dann schaut sie mir in die Augen und lächelt...
+
+[Gedanken eines Kneipenbesuchers am 18.05.2021](Tagebuch-2.md#08052021)

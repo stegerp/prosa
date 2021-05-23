@@ -127,14 +127,6 @@ Je länger wir uns unterhalten, desto mehr gleichen wir uns an.
 Die Maschine und ich mit meiner Leere und wir mit diesen Worten, die nichts weiter sind als das Gehäuse keines Inhalts.
 
 ### 8
-Die Erinnerung an das rauchverhangene Neonlicht einer Kneipe, 
-das Einlullen meiner Blicke im feuchten Atem kraftloser Illusionen und der Eindruck, 
-das Davor und Danach des Lebens in diesem Moment festhalten zu können. 
-Für immer. In nächster Nähe zum emotionalen Abgrund, 
-in größtmöglicher Entfernung zur Erreichbarkeit meiner Träume, 
-inmitten der lebendigsten Täuschung meines Bewusstseins.
-
-### 9
 Blick in die Baumkronen eines Gartens von üppiger Schönheit. Gedanken verschwinden unter wogenden Blättergewändern, Erinnerungen verwehen wie Mosaike aus Blütenwolken, und dann, ein leises Rauschen, das sanfte Flüstern einer alten Regung.
 In allem spüre ich den Atem der Freiheit, die Sehnsucht nach einem Leben in vorsprachlicher Entsagung. Dort, wo ich alles und nichts bin, weil ich als einziger und alleine bin. Dort, wo ich unsäglich bin, weil mich Worte nicht erreichen.
 Ein Sonnenstrahl findet seinen Weg durch das dichte Blattwerk und holt mich aus meiner Träumerei zurück. Die Eindrücke verblassen und weichen der gewohnten Müdigkeit. Sie wiegt schwerer als sonst. Ich frage mich einmal mehr, wie groß die Belastung sein mag, der wir Menschen durch Sprache ausgesetzt sind?
