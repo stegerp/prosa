@@ -16,10 +16,9 @@ setze ich mich in den Schatten und schaue zu.
 Mein Leben ist der Himmel, 
 meine Erinnerungen die Wolken. 
 Manchmal weiß ich nicht, 
-ob diese Erinnerungen wirklich meine sind. 
-Aber was macht das schon?
-Werde ich sie mitnehmen können, 
-wenn ich gehe? 
+ob diese Erinnerungen wirklich meine sind.
+Sie kommen und gehen, 
+ohne dass ich es merke. 
 
 [Gedanken am 08.05.2021](Tagebuch.md#08052021)
 
