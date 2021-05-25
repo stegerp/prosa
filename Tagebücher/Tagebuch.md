@@ -106,7 +106,8 @@ bis es schließlich an Land gespült wurde.
 Schimmernd rollte es mir vor die Füße.
 Ich betrachtete es noch eine Weile, 
 dann kehrte ich um.
-Auf dem Rückweg schien mir Dunkelheit nur ein weiterer Ausdruck für das Licht zu sein,
+Auf dem Rückweg schien mir Dunkelheit nur ein weiteres Synonym für Helligkeit zu sein,
+ein Ausdruck für das Licht, 
 das sie verhüllt.
 
 ### 18.05.2021
