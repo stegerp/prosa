@@ -140,3 +140,36 @@ meine Worte immer wieder lese.<br>
 Dann schaut sie mir in die Augen und lächelt...
 
 [Gedanken eines Kneipenbesuchers am 18.05.2021](Tagebuch-2.md#08052021)
+
+### 26.05.2021
+Erinnerungen sind ihrem Wesen nach den Wolken nicht unähnlich.
+Zu Beginn sieht man sie noch deutlich vor sich.
+Doch dann verändern und verformen sie sich,
+fast unmerklich,
+sodass man im Nachhinein nur noch erahnen kann,
+welcher Gestalt sie ursprünglich einmal waren.<br>
+Mir ist, als regnete es seit undenklichen Zeiten.
+Jeden Morgen trete ich an das Terrassenfenster und schaue hinaus.
+Der Himmel hat sich zu einer undurchdringlichen Decke verschlossen
+und hängt nur knapp über Land und See.
+Im schwachen Zwielicht, 
+das sich durch den Regen hindurch behauptet,
+kann mann gerade so die Konturen der Dinge erkennen.
+Diese hingegen haben ihre Farben verloren 
+wie der Himmel sein Wechselspiel aus Licht und Wolken.
+Mein ganzes Leben verliert sich in dieser himmlischen Gleichförmigkeit.<br>
+Ohne die Erinnerung bin ich nur noch ein Schöpfer von Traumwelten.
+Ich verfüge über ein schier endloses Repertoire an Bildern,
+deren Herkunft ich nicht kenne.
+Zwischen meinen Fingern und Zehen bilden sich Schwimmhäute.
+Durch mein Fenster 
+– bin ich mir sicher – 
+kann man den Widerschein des spärlichen Tageslichts auf meiner Haut erkennen,
+die aus unzähligen glänzenden und glitzernden Fischschuppen besteht.<br>
+Ich weiß, dieser Traum wird sich auflösen,
+sobald der Himmel wieder leuchtet
+und die Wolken wieder wandern. 
+Doch die Erinnerung daran wird sich in einen Traum verwandeln
+und jeder Versuch,
+sie in Worte zu fassen, 
+muss zu dem gleichen Ergebnis führen. 
