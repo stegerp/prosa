@@ -172,4 +172,52 @@ und die Wolken wieder wandern.
 Doch die Erinnerung daran wird sich in einen Traum verwandeln
 und jeder Versuch,
 sie in Worte zu fassen, 
-muss zu dem gleichen Ergebnis führen. 
+muss zu dem gleichen Ergebnis führen.
+
+### 30.05.2021
+_Som i serem paraules_
+
+Gestern war ich wieder in der Kneipe.
+Wie immer setzte ich mich an meinen Platz an der Theke.
+Zwei Stühle weiter saß diese seltsame, hippiesk anmutende Alte,
+die ich schon ein paar Mal im Ort gesehen hatte und 
+die für mich zum Alltagsinventar des öffentlichen Lebens gehörte.
+Den ganzen Abend über beachtete ich sie nicht weiter,
+unterhielt mich gelegentlich mit dem Wirt,
+der sich hinter dem Ausschank verbarrikadierte,
+oder ließ meinen Blick durch den Raum schweifen,
+wo sich das nächtliche Leben aus den Gläsern in die Gemüter der Feiernden ergoß.<br>
+Es musste gegen Ende gewesen sein,
+als sie sich für die letzte Bestellung neben mich setzte.
+Ich merkte erst nach einer Weile,
+dass sie mir etwas zuraunte.
+Den Kopf leicht zur Seite geneigt,
+den Blick auf einen unbestimmten Punkt in der Ferne fixiert,
+schien sie mir etwas anvertrauen zu wollen.
+Ich musterte sie kurz.
+Sie hatte langes, glattes, dunkelsilbern schimmerndes Haar,
+das ihr in dicken Strähnen über das Gesicht fiel
+und die sonnengegerbte Haut ihrer Schultern bedeckte.
+Befremdet bemerkte ich den Kontrast zwischen ihrem dunklen Teint und den ausgeblichenen Farben ihres Sommerkleides,
+der selbst im schummrigen Kneipenlicht noch unnatürlich stark zur Geltung kam.
+Ich sah ihren Mund, die gleichmäßigen Bewegungen ihrer Lippen,
+erkannte, wie sie die gleichen Worte immer wiederholte,
+wieder und wieder, ohne mich anzuschauen.
+Also beugte ich mich zu ihr hinüber und erfuhr,
+dass sie nicht wirklich existiere,
+dass sie sich mir und allen zufällig Anwesenden nur zu bestimmten Zeiten zeige
+und dass sie zwischen ihren Erscheinungen niemand und nirgends sei.
+Dass alles an ihr nur erfunden sei:
+Alles, was sie sage,
+alles, was sie zeige,
+alles, was sie vorgebe zu sein.
+Dass sie lediglich ein Produkt meiner Phantasie sei und als solches nur mir allein gehöre.<br>
+Ich konnte ihren Atem nun deutlich riechen.
+In den ethylischen Dunst ihrer Aussagen hatte sich noch ein weiterer Geruch gemischt.
+Schwefel.
+Entsetzt wich ich zurück.
+Erst jetzt fiel mir das tiefe Dekolleté auf, der volle Busen.
+Ihr Brustkorb hob und senkte sich schnell und ungleichmäßig.
+Dann blickte sie mich an.
+Ihre dunklen Augen hatten einen rötlichen Glanz bekommen.
+
