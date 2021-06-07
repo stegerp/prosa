@@ -221,13 +221,3 @@ Ihr Brustkorb hob und senkte sich schnell und ungleichmäßig.
 Dann blickte sie mich an.
 Ihre dunklen Augen hatten einen rötlichen Glanz bekommen.
 
-### 03.06.2021
-Mein Leben hat keine Form.<br>
-Sein Sinn ergibt sich aus dem Klang fremder Worte,
-die der Zufall an mich heranträgt.
-So vermengen und verdichten sich die Stimmen der Welt zu meinem Leben
-(das ich nicht lebe), 
-verklingen und verhallen in meiner Erinnerung
-(die ich nicht habe), 
-verschwimmen und verebben zu dem einen gleichtönigen Geflüster,
-das ich unwissend von mir gebe wie die Fürbitten an einen Gott der immerwährenden Ablenkung.
