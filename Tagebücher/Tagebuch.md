@@ -1,5 +1,3 @@
-[fin](#fin)
-
 ### 02.05.2021
 Obwohl von mir nichts übrig bleiben wird als Worte 
 – also nichts –,
@@ -233,7 +231,3 @@ verklingen und verhallen in meiner Erinnerung
 (die ich nicht habe), 
 verschwimmen und verebben zu dem einen gleichtönigen Geflüster,
 das ich unwissend von mir gebe wie die Fürbitten an einen Gott der immerwährenden Ablenkung.
-
-### fin
-
-[inicio](#02052021)
