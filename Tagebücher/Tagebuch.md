@@ -220,3 +220,13 @@ Erst jetzt fiel mir das tiefe Dekolleté auf, der volle Busen.
 Ihr Brustkorb hob und senkte sich schnell und ungleichmäßig.
 Dann blickte sie mich an.
 Ihre dunklen Augen hatten einen rötlichen Glanz bekommen.
+
+### 03.06.2021
+Den Sinn des Lebens erfahre ich allein im Klang fremder Worte,
+die das Schicksal an mich heranträgt.<br>
+In solchen Momenten vermengen und verdichten sich die Stimmen der Welt zu meinem Leben
+(das ich nicht lebe),
+verklingen und verhallen in meiner Erinnerung
+(die ich nicht habe),
+verschwimmen und verebben in dem einen gleichtönigen Raunen,
+das in mir anhält wie die Beschwörung der immerwährenden Ablenkung von mir selbst.
