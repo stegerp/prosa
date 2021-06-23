@@ -8,7 +8,8 @@ In diese Worte passen die ganze Welt,
 all das, was sich auf ihr zuträgt, 
 all ihre Bewohner mit ihren Hoffnungen und Ängsten, 
 ihren Gedanken und Träumen.
-Kurz, das ganze Leben, alles.<br>
+Kurz, das ganze Leben, alles.
+
 Heute bin ich umgezogen. Schon wieder.
 Doch der heutige Umzug war nicht nur ein örtlicher, 
 es war auch ein geistiger.
@@ -230,3 +231,69 @@ verklingen und verhallen in meiner Erinnerung
 (die ich nicht habe),
 verschwimmen und verebben in dem einen gleichtönigen Raunen,
 das in mir anhält wie die Beschwörung der immerwährenden Ablenkung von mir selbst.
+
+### 13.06.2021
+_As horas, como um carro ao entardecer, 
+regressam chiando pelas sombras dos meus pensamentos. 
+Se ergo os olhos de sobre o meu pensamento, 
+elles ardem-me do espectaculo do mundo. (Fernando Pessoa, Livro do desassossego)_
+
+Manchmal erwache ich aus meinen Träumen und
+fühle mich durchdrungen von Erinnerungen,
+vom Eindruck einer außergewöhnlichen Verdichtung von Schicksal und Überlieferung.
+Dann glaube ich die Anwesenheit alle jener zu spüren,
+deren Leben im Schauspiel der Menschheitsgeschichte eine entscheidende Rolle spielte.<br>
+An solchen Tagen verlasse ich das Dorf 
+und steige die sanfte Anhöhe hinauf.
+Ich durchquere die Olivenhaine
+und erreiche die Kuppe des Hügels, 
+von wo aus ich das tiefe Blau des Meeres sehen kann. 
+Dort liegt es, 
+mit seiner gleichmäßigen Haut 
+durchzogen von den schaumigen Adern glitzernder Wellenkämme. 
+Und davor, angeschmiegt an sein Ufer, 
+liegt ergeben das Dorf.<br>
+Ich setze mich unter einen schattigen Baum und warte, 
+bis die Augen beginnen, 
+das Gesehene zu erzählen, 
+und die Ohren, 
+das Gehörte zu sehen, 
+als wären meine Sinne rein geistiger Natur.<br>
+So sitze ich stundenlang und lausche den Stimmen,
+die der Wind und die Phantasie zu mir tragen und
+die mir zu Hunderten berichten.
+Und während ich zuhöre, sehe ich die Geschichte neu entstehen,
+sehe,
+wie Menschen fremde Länder bevölkern,
+wie sie sesshaft werden und Städte bauen,
+wie sie Kriege führen und Reiche errichten,
+wie ihre Taten das Schicksal der Welt verändern.
+Und während alles passiert,
+lese ich die Worte, 
+die sie niederschreiben,
+empfinde ich,
+was sie empfinden,
+erlebe ich, 
+was sie erleben,
+bis die Geschichte der Welt ganz zu meiner eigenen wird, 
+bis schließlich die Nacht vom Himmel fällt
+wie ein Vorhang vor der Bühne der Welt.
+
+### 18.01.2021
+In einem Anflug größter Selbstzweifel gehe ich erneut in die Kneipe,
+wo mir am Vorabend zu Ohren gekommen war,
+dass mein Vormieter niemand anderes gewesen sei als ich selbst.
+Der Gast, von dem diese Aussage stammte, sitzt – den Kopf in die Hände gestützt – 
+auf einem der äußeren Plätze an der Theke.
+Er erkennt mich sofort wieder 
+und wirkt mit einem Mal sehr angespannt. 
+Also gehe ich zu ihm und komme geradewegs auf die gestrige Unterhaltung zu sprechen.
+Er streicht sich nervös über Wange und Stirn, 
+wie um die Unruhe wegzuwischen,
+die sich jetzt als Schweiß auf seinem Gesicht bemerkbar macht.
+Schließlich bringt er die Frage hervor,
+den einen Zweifel, 
+der ihn vor die Tiefen eines inneren Abgrunds zu stellen scheint. 
+Nämlich dass es doch ich gewesen sei, 
+der ihn damit konfrontiert hätte,
+sein Nachmieter sei niemand anderes als er selbst.
