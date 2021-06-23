@@ -1,15 +1,4 @@
 ### 02.05.2021
-Obwohl von mir nichts übrig bleiben wird als Worte 
-– also nichts –,
-wird mein gesamtes Vermächtnis aus Worten bestehen.
-Worte, die alles sein werden, was ich jemals war. 
-Worte, durch die ich alles bin.<br>
-In diese Worte passen die ganze Welt, 
-all das, was sich auf ihr zuträgt, 
-all ihre Bewohner mit ihren Hoffnungen und Ängsten, 
-ihren Gedanken und Träumen.
-Kurz, das ganze Leben, alles.
-
 Heute bin ich umgezogen. Schon wieder.
 Doch der heutige Umzug war nicht nur ein örtlicher, 
 es war auch ein geistiger.
