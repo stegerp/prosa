@@ -152,11 +152,11 @@ welcher Gestalt sie ursprünglich einmal waren.<br>
 Mir ist, als regnete es seit undenklichen Zeiten.
 Jeden Morgen trete ich an das Terrassenfenster und schaue hinaus.
 Der Himmel hat sich zu einer undurchdringlichen Decke verschlossen
-und hängt nur knapp über Land und See.
+und hängt tief über Land und See.
 Im schwachen Zwielicht, 
 das sich durch den Regen hindurch behauptet,
-kann mann gerade so die Konturen der Dinge erkennen.
-Diese hingegen haben ihre Farben verloren 
+kann mann die Konturen der Dinge kaum mehr erkennen.
+Sie haben ihre Farben verloren 
 wie der Himmel sein Wechselspiel aus Licht und Wolken.
 Mein ganzes Leben verliert sich in dieser himmlischen Gleichförmigkeit.<br>
 Ohne die Erinnerung bin ich nur noch ein Schöpfer von Traumwelten.
