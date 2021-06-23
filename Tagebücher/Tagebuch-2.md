@@ -5,7 +5,7 @@ Jetzt habe ich endlich Zeit,
 in meinem Garten zu arbeiten.
 Dort kann ich den ganzen Kreislauf des Lebens noch einmal erleben.
 Jedes Jahr von Neuem. 
-Von der Blüte bis zum Sterben.  
+Von der Saat bis zur Ernte.  
 Ein Menschenleben in einem Jahr.
 Mit guten und schlechten Zeiten. 
 Sonne und Regen. 
