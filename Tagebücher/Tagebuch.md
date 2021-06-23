@@ -279,21 +279,4 @@ bis die Geschichte der Welt ganz zu meiner eigenen wird,
 bis schließlich die Nacht vom Himmel fällt
 wie ein Vorhang vor der Bühne der Welt.
 
-### 18.01.2021
-In einem Anflug größter Selbstzweifel gehe ich erneut in die Kneipe,
-wo mir am Vorabend zu Ohren gekommen war,
-dass mein Vormieter niemand anderes gewesen sei als ich selbst.
-Der Gast, von dem diese Aussage stammte, sitzt – den Kopf in die Hände gestützt – 
-auf einem der äußeren Plätze an der Theke.
-Er erkennt mich sofort wieder 
-und wirkt mit einem Mal sehr angespannt. 
-Also gehe ich zu ihm und komme geradewegs auf die gestrige Unterhaltung zu sprechen.
-Er streicht sich nervös über Wange und Stirn, 
-wie um die Unruhe wegzuwischen,
-die sich jetzt als Schweiß auf seinem Gesicht bemerkbar macht.
-Schließlich bringt er die Frage hervor,
-den einen Zweifel, 
-der ihn vor die Tiefen eines inneren Abgrunds zu stellen scheint. 
-Nämlich dass es doch ich gewesen sei, 
-der ihn damit konfrontiert hätte,
-sein Nachmieter sei niemand anderes als er selbst.
+
