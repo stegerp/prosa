@@ -228,7 +228,7 @@ Se ergo os olhos de sobre o meu pensamento,
 elles ardem-me do espectaculo do mundo. (Fernando Pessoa, Livro do desassossego)_
 
 Manchmal erwache ich aus meinen Träumen und
-fühle mich durchdrungen von Erinnerungen,
+fühle mich durchdrungen von fremden Erinnerungen,
 vom Eindruck einer außergewöhnlichen Verdichtung von Schicksal und Überlieferung.
 Dann glaube ich die Anwesenheit alle jener zu spüren,
 deren Leben im Schauspiel der Menschheitsgeschichte eine entscheidende Rolle spielte.<br>
