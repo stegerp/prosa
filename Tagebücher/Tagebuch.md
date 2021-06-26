@@ -229,7 +229,7 @@ elles ardem-me do espectaculo do mundo. (Fernando Pessoa, Livro do desassossego)
 
 Manchmal erwache ich aus meinen Träumen und
 fühle mich durchdrungen von fremden Erinnerungen,
-vom Eindruck einer außergewöhnlichen Verdichtung von Schicksal und Überlieferung.
+vom Eindruck einer außergewöhnlichen Verdichtung von Überlieferung und Schicksal. 
 Dann glaube ich die Anwesenheit alle jener zu spüren,
 deren Leben im Schauspiel der Menschheitsgeschichte eine entscheidende Rolle spielte.<br>
 An solchen Tagen verlasse ich das Dorf 
