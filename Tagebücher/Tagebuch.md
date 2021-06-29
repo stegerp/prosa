@@ -30,7 +30,7 @@ Ich erwache in der Gegenwart. Mein Körper liegt aufgebahrt auf einer Liege.
 Mein Gesicht ist Gegenstand eines prüfenden Blicks aus weißblauen Augen,
 deren analytische Kälte eine unterschwellige Melancholie nicht gänzlich verbergen können.<br>
 So finde ich mich wieder –
-mein Geist gefangen in einem leblosen Gehäuse aus rohem Fleisch und morschen Knochen – 
+mein Geist gefangen in einem leblosen Gehäuse aus Fleisch und Knochen – 
 spreche und höre mir gleichzeitig zu.
 Denke in Worten, die von jeder Konsequenz befreit in mir verhallen,
 Worte als seien es Empfindungen, 
