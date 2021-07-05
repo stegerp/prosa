@@ -203,7 +203,7 @@ alles, was sie zeige,
 alles, was sie vorgebe zu sein.
 Dass sie lediglich ein Produkt meiner Phantasie sei und als solches nur mir allein gehöre.<br>
 Ich konnte ihren Atem nun deutlich riechen.
-In den ethylischen Dunst ihrer Aussagen hatte sich noch ein weiterer Geruch gemischt.
+In den ethylischen Dunst ihrer Aussagen hatte sich noch ein weiterer Geruch gemischt:
 Schwefel.
 Entsetzt wich ich zurück.
 Erst jetzt fiel mir das tiefe Dekolleté auf, der volle Busen.
